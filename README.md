@@ -1,6 +1,6 @@
 # CONTAS
 
-1- R$50 CC 
+1- R$50 CC  - Chave PIX CPF 088.594.614-64
 
 2- Mensalidade Estratégia R$120,00
 
