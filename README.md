@@ -1,16 +1,19 @@
 # CONTAS
 
-1- R$50 CC  - Chave PIX CPF 088.594.614-64
+1- Energia Neoenergia
 
-2- Mensalidade Estratégia R$120,00
+2- Agua 
 
-3- Energia Neoenergia
+3- Internet
 
-4- Agua 
+4- R$50 CC  - Chave PIX CPF 088.594.614-64
 
-5- Internet
+5- Mensalidade CC R$305,00
 
-2- Mensalidade CC R$305,00
+6- Mensalidade Estratégia R$120,00
 
-2- Mensalidade Ana(protése mãe) R$250,00 - pagas 1
+7- Mensalidade Ana(protése mãe) R$250,00 - pagas 1
+
+
+
 
