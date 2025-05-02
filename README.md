@@ -10,7 +10,7 @@
 
 5- Mensalidade CC R$305,00 - https://plataforma.edibrasil.org/inscricao_aluno/painel/18875
 
-6- Mensalidade Estratégia(cartão pai) R$120,00 
+6- Mensalidade Estratégia(cartão pai) R$125,00 (cobrar da Daise R$125,00) total R$250 
 
 7- Mensalidade Ana(protése mãe) R$250,00 - PIX: 12997294677 pagas 2
 
