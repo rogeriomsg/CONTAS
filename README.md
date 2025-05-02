@@ -12,7 +12,7 @@
 
 6- Mensalidade Estratégia(cartão pai) R$120,00 
 
-7- Mensalidade Ana(protése mãe) R$250,00 - pagas 1
+7- Mensalidade Ana(protése mãe) R$250,00 - PIX: 12997294677 pagas 2
 
 
 
