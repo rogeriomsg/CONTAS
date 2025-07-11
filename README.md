@@ -12,7 +12,7 @@
 
 6- Mensalidade Estratégia(cartão pai) R$125,00 (cobrar da Daise R$125,00) total R$250 PIX: 55981232415 pago 3/12
 
-7- Mensalidade Ana(protése mãe) R$250,00 - PIX: 12997294677 pago 3/5
+7- Mensalidade Ana(protése mãe) R$250,00 - PIX: 12997294677 pago 4/10
 
 
 
