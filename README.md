@@ -12,6 +12,8 @@
 
 6- Mensalidade Estratégia(cartão pai) R$125,00 (cobrar da Daise R$125,00) total R$250 __PIX: 55981232415__ pagos 9/12
 
+7- Mensalidade EDUCACIONAL(cartão pai) R$139,00 PIX: 55981232415 pagos 1/12
+
 
 > [!IMPORTANT]
 > Key information users need to know to achieve their goal.
