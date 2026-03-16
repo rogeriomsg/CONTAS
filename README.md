@@ -6,13 +6,11 @@
 
 3- Internet - https://minhaclaroresidencial.claro.com.br/
 
-4- Mensalidade CC R$305,00 - https://plataforma.edibrasil.org/inscricao_aluno/painel/18875 __pagos__ 9/10
+4- Mensalidade Estratégia(cartão pai) R$125,00 (cobrar da Daise R$125,00) total R$250 __PIX: 55981232415__ pagos 11/12
 
-5- Mensalidade Estratégia(cartão pai) R$125,00 (cobrar da Daise R$125,00) total R$250 __PIX: 55981232415__ pagos 11/12
+5- Mensalidade EDUCACIONAL(cartão pai) R$139,00 PIX: 55981232415 pagos 3/12
 
-6- Mensalidade EDUCACIONAL(cartão pai) R$139,00 PIX: 55981232415 pagos 3/12
+6- Aula de musica crianças R$200
 
-7- Aula de musica crianças R$200
-
-8- Balé Isadora R$170
+7- Balé Isadora R$170
 
