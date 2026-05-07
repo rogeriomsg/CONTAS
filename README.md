@@ -10,7 +10,9 @@
 
 5- Mensalidade EDUCACIONAL(cartão pai) R$140,00 PIX: 55981232415 pagos 5/12
 
-6- Aula de musica crianças R$170
+6- Mensalidade COTURNO (cartão pai) R$150,00 PIX: 55981232415 pagos 0/3
 
-7- Balé Isadora R$170
+7- Aula de musica crianças R$170
+
+8- Balé Isadora R$170
 
