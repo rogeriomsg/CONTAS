@@ -6,9 +6,9 @@
 
 3- Internet - https://minhaclaroresidencial.claro.com.br/
 
-4- Mensalidade QConcurso (cartão pai) R$15,90 __PIX: 55981232415__ pagos 0/12
+4- Mensalidade QConcurso (cartão pai) R$15,90 __PIX: 55981232415__ pagos 1/12
 
-5- Mensalidade EDUCACIONAL(cartão pai) R$140,00 PIX: 55981232415 pagos 4/12
+5- Mensalidade EDUCACIONAL(cartão pai) R$140,00 PIX: 55981232415 pagos 5/12
 
 6- Aula de musica crianças R$170
 
