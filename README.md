@@ -16,5 +16,5 @@
 
 7- Aula de musica crianças R$170 Ultimo pagamento 14/05
 
-8- Balé Isadora R$170 Ultimo pagamento 14/05
+8- Balé Isadora __PIX: 60309908/0001-03__ R$170 Ultimo pagamento 09/06
 
