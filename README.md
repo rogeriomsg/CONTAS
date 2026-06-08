@@ -4,7 +4,7 @@
 
 2- Agua - https://www.caesb.df.gov.br/portal-servicos/ Ultimo pagamento 14/05
 
-3- Internet - https://minhaclaroresidencial.claro.com.br/ Ultimo pagamento 09/09
+3- Internet - https://minhaclaroresidencial.claro.com.br/ Ultimo pagamento 09/06
 
 4- Mensalidade QConcurso (cartão pai) R$16,00 __PIX: 55981232415__ pagos 2/12 Ultimo pagamento 09/06
 
