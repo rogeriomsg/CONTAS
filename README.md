@@ -16,7 +16,7 @@
 
   8- Mensalidade BLOCO MAGNETICO (cartão pai) R$28,62 __PIX: 55981232415__ pagos 3/3 Ultimo pagamento 12/07
 
-  9- Mensalidade NATAÇÃO THEO (cartão pai) R$190,00 __PIX: 55981232415__ pagos 2/6 Ultimo pagamento 09/06
+  9- Mensalidade NATAÇÃO THEO (cartão pai) R$190,00 __PIX: 55981232415__ pagos 3/6 Ultimo pagamento 12/07
 
 10- Aula de musica crianças __PIX: 61983452479__ R$170 Ultimo pagamento 09/06
 
