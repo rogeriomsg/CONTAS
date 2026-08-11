@@ -6,11 +6,11 @@
 
 3- Internet - https://minhaclaroresidencial.claro.com.br/ Ultimo pagamento 07/08
 
-4- Mensalidade QConcurso (cartão pai) R$16,00 __PIX: 55981232415__ pagos 3/12 Ultimo pagamento 07/08
+4- Mensalidade QConcurso (cartão pai) R$16,00 __PIX: 55981232415__ pagos 4/12 Ultimo pagamento 07/08
 
-5- Mensalidade EDUCACIONAL(cartão pai) R$140,00 __PIX: 55981232415__ pagos 7/12 Ultimo pagamento 07/08
+5- Mensalidade EDUCACIONAL(cartão pai) R$140,00 __PIX: 55981232415__ pagos 8/12 Ultimo pagamento 07/08
 
-9- Mensalidade NATAÇÃO THEO (cartão pai) R$190,00 __PIX: 55981232415__ pagos 3/6 Ultimo pagamento 07/08
+9- Mensalidade NATAÇÃO THEO (cartão pai) R$190,00 __PIX: 55981232415__ pagos 4/6 Ultimo pagamento 07/08
 
 10- Aula de musica crianças __PIX: 61983452479__ R$170 Ultimo pagamento 11/08
 
