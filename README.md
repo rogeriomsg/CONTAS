@@ -12,7 +12,7 @@
 
 6- Mensalidade NATAÇÃO THEO (cartão pai) R$190,00 __PIX: 55981232415__ pagos 5/6 Ultimo pagamento 01/09
 
-7- Aula de musica crianças __PIX: 61983452479__ R$170 Ultimo pagamento 11/08
+7- Aula de musica crianças __PIX: 61983452479__ R$170 Ultimo pagamento 01/09
 
-8- Balé Isadora __PIX: 60309908/0001-03__ R$170 Ultimo pagamento 11/08
+8- Balé Isadora __PIX: 60309908/0001-03__ R$170 Ultimo pagamento 01/09
 
