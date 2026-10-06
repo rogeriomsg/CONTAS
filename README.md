@@ -2,9 +2,9 @@
 
 1- Energia Neoenergia - https://agenciavirtual.neoenergiabrasilia.com.br/SegundaVia?codigo=02805814 Ultimo pagamento 07/08
 
-2- Agua - https://www.caesb.df.gov.br/portal-servicos/ Ultimo pagamento 01/09
+2- Agua - https://www.caesb.df.gov.br/portal-servicos/ Ultimo pagamento 06/10
 
-3- Internet - https://minhaclaroresidencial.claro.com.br/ Ultimo pagamento 07/08
+3- Internet - https://minhaclaroresidencial.claro.com.br/ Ultimo pagamento 06/10
 
 4- Mensalidade QConcurso (cartão pai) R$16,00 __PIX: 55981232415__ pagos 5/12 Ultimo pagamento 01/09
 
