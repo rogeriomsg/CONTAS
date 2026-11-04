@@ -6,7 +6,7 @@
 
 3- Internet - https://minhaclaroresidencial.claro.com.br/ Ultimo pagamento 04/11
 
-4- Aula de musica crianças __PIX: 61983452479__ R$170 Ultimo pagamento 06/10
+4- Aula de musica crianças __PIX: 61983452479__ R$170 Ultimo pagamento 04/11
 
 5- Balé Isadora __PIX: 60309908/0001-03__ R$170 Ultimo pagamento 06/10
 
